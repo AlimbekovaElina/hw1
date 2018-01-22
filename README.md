@@ -24,5 +24,5 @@
 
 ![alt-текст](https://st.kp.yandex.net/im/poster/2/0/6/kinopoisk.ru-The-Perks-of-Being-a-Wallflower-2065991.jpg "Необязательный титул")
 ## **Ссылки на социальные сети**
-- [ссылка](https://vk.com/feed)
+- [ссылка](https://vk.com/ssuuxx)
 - [ссылка](https://www.instagram.com/blzzzrd/)
